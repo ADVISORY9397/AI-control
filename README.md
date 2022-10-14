@@ -15,11 +15,12 @@ AIcontrol
 
 ✌안녕하세요 김민준입니다 잘부탁드립니다✌
 
-KakaoTalk_20220916_010828751
+![190460088-173ee18b-b23f-4fe7-9ed7-a819e6587fa6](https://user-images.githubusercontent.com/115769969/195762428-20873be2-ee96-4b25-a957-e671bc4173b2.jpg)
 
 👉사진장소: [https://blog.naver.com/jam000/220712916731]
 
 👉나이: 27세
+![190460088-173ee18b-b23f-4fe7-9ed7-a819e6587fa6](https://user-images.githubusercontent.com/115769969/195762381-fa116c20-7289-44a2-a6f1-984be99daeac.jpg)
 
 👉학교: 한국폴리텍대학 창원캠퍼스
 
